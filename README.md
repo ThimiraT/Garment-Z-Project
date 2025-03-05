@@ -107,7 +107,7 @@ Feel free to fork this repository, make improvements, and submit a pull request!
 
 ## Contact
 
-For any inquiries, please reach out at(mailto:thimirathathsarana2003@gmail.com)
+For any inquiries, please reach out at(thimirathathsarana2003@gmail.com)
 
  
  - 🔗 Links
